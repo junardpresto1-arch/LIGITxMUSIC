@@ -1,17 +1,17 @@
-# LIGITxMUSIC
+# NYXxMUSIC
 POWERFUL MUSIC BOT
 
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 ʟɪɢɪᴛ ✘ ᴍᴜsɪᴄ 」──
+    ──「 ONYX ✘ ᴍᴜsɪᴄ 」──
 </h2>
 
 <p align="center">
   <img src="https://te.legra.ph/file/1f070ea3147e2a3ef44e4.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʟɪɢɪᴛ ✘ ᴍᴜsɪᴄ](https://t.me/LIGITMUSIC_ROBOT)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ONYX ✘ ᴍᴜsɪᴄ]**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
@@ -26,7 +26,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʟɪɢɪᴛ ✘ ᴍ
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://te.legra.ph/file/693f4add2a4ae3fc95df9.jpg">
+  <img src="https://i.pinimg.com/736x/c9/41/9e/c9419ec90a167a3aa4563c017b1f2b8d.jpg">
 </p>
 
 <p align="center">
